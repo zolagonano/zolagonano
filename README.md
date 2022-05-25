@@ -1,3 +1,3 @@
 ## Hi there! :wave:
 
-I'm a geek who loves computers, programming, and cryptography. :smiley:
+I'm a geek who loves plants :seedling:, computers :computer:, programming :coffee:, and cryptography :key:. :crocodile:
